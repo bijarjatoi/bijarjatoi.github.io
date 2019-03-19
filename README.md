@@ -1,1 +1,0 @@
-# bijarjatoi.github.io
